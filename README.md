@@ -1,3 +1,1 @@
 # Akatsuki
-
-Info needed
